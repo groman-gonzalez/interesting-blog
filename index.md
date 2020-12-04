@@ -11,7 +11,3 @@ Being at Magfest, I was already surrounded by the dregs of society; however, it 
 
 >*These conventions are already cesspools of germs, drugs and the very rare occasion of sex. I can only imagine how big a super-spreader event one would be during the pandemic. Then again, these conventions are probably the only time people leave their rooms. Which is a direct contradiction to my friends the morning after their drunken fiasco.
 >While I was excited to get my monies worth on the convention pass that cost near $100, my friends directed their hung-over anger towards the idea of getting out of bed. After seeing what the previous night entailed, I didn’t blame them.ation file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
