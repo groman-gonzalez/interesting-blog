@@ -1,7 +1,5 @@
 ## Welcome to GitHub Pages
 
-You can use the [editor on GitHub](https://github.com/groman-gonzalez/interesting-blog/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
 Back in 2018, I traveled to the National Harbor in Washington D.C. to meet up with some friends who were attending Magfest, a convention that [touts] a weekend celebration of video games, video game music and the surrounding culture. In reality, it was just another sausage fest filled with nerds who didn’t bring enough deodorant.
 I had initially gone because I was talking to someone on Tinder at the time, and we had agreed to meet up at the convention. It turns out my friends knew this person of interest and advised me to not meet with them. In turn, much of my time was spent between drinking with my friends and playing pinball in the arcade hall that stayed open all night.
 I am grateful of my friends’ advice because if I did spend the night with my Tinder date, I would have missed out on the renaissance painting that was my friends splayed across the hotel room floor, throwing up everywhere as the only sober friend struggled to keep everyone proper. On the other hand, I am disappointed in them because I had to spend the night in a hotel room that stank of vomit.
