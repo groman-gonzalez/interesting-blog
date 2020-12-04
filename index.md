@@ -7,10 +7,10 @@ After stealing towels from the hotel’s pool to offset the slimy mess that was 
 Being at Magfest, I was already surrounded by the dregs of society; however, it was even more so the case past 2 a.m. Those who couldn’t find a place to stay or were too drunk to operate roamed the convention halls in a tired stupor. I would like to say that my circumstances were different, but it’s not like it mattered to the hotel staff who were tasked with prodding awake those who fell asleep in the lobby.
 
 
-### Summary
+### I guess not the summary
 
-*These conventions are already cesspools of germs, drugs and the very rare occasion of sex. I can only imagine how big a super-spreader event one would be during the pandemic. Then again, these conventions are probably the only time people leave their rooms. Which is a direct contradiction to my friends the morning after their drunken fiasco.
-While I was excited to get my monies worth on the convention pass that cost near $100, my friends directed their hung-over anger towards the idea of getting out of bed. After seeing what the previous night entailed, I didn’t blame them.ation file.
+>*These conventions are already cesspools of germs, drugs and the very rare occasion of sex. I can only imagine how big a super-spreader event one would be during the pandemic. Then again, these conventions are probably the only time people leave their rooms. Which is a direct contradiction to my friends the morning after their drunken fiasco.
+>While I was excited to get my monies worth on the convention pass that cost near $100, my friends directed their hung-over anger towards the idea of getting out of bed. After seeing what the previous night entailed, I didn’t blame them.ation file.
 
 ### Support or Contact
 
